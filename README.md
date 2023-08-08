@@ -4,4 +4,4 @@
 
 # Sawernya ngab
 
-# saweria.co/Hanscul
+# saweria.co/Hansculs
